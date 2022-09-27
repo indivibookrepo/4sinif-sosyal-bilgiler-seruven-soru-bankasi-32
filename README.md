@@ -1,0 +1,1 @@
+# 4sinif-sosyal-bilgiler-seruven-soru-bankasi-32
